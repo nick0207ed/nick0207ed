@@ -9,4 +9,5 @@ escola simao mathias
 nickhello0106@gmail.com
 
 @nick0207_ed
-![](https://github.com/user-attachments/assets/ef218869-c351-498a-962a-97ddfd8dccbb)
+
+![](https://media1.tenor.com/m/EYm6p5Jm-1gAAAAd/luffy-smiling-one-piece.gif)
